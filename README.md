@@ -1,4 +1,4 @@
-<h1 align="center">Hi fine shytt here to check out my projects?</h1>
-<h3 align="center">drop a refferal if you have come this far </h3>
+<h1 align="center">Hello there fine shytt! Checking out my projects huh?</h1>
+<h3 align="center">drop a referral if you have come this far 🥀 </h3>
 
 
