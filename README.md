@@ -1,5 +1,4 @@
-<h1 align="center">Hello there fine shytt! Checking out my projects huh?</h1>
-<h3 align="center">drop a referral plssss 🥀 </h3>
-<h3 align="center">i need a j*b 😭</h3>
+<h1 align="center">Hello, esteemed, distinguished, breathtaking, Nobel-caliber visitor. I humbly request that you deposit one (1) referral into my account. Thank you for your cooperation.</h1>
+
 
 
