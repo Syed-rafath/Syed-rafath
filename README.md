@@ -1,4 +1,5 @@
-<h1 align="center">Hello, esteemed, distinguished, breathtaking, Nobel-caliber visitor. I humbly request that you deposit one (1) referral into my account. Thank you for your cooperation.</h1>
+
+Hi, random internet stranger. If you have referral powers, now would be a great time to use them.
 
 
 
